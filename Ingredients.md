@@ -1,0 +1,1 @@
+Aloo tikki is a popular Indian street food snack made with boiled potatoes,some veggies, aromatic spices and herbs.

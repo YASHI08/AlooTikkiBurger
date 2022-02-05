@@ -1,1 +1,1 @@
-# AlooTikkiBurger
+The combination of a potato and peas patty with special Indian spices coated with breadcrumbs, served with sweet tomato mayo, fresh onions, and tomatoes in a regular bun is still a hit, not just among Indians, but even foreigners who have tried it during their visit to India.

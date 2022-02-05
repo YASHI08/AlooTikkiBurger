@@ -1,0 +1,2 @@
+Tikki is made from boiled potatoes and green peas with some Indian spices and lemon juice. If you want you can add shreeded carrot or boiled and mashed green beans, corn or other veggies of your choice. 
+The spread or sauce and toppings for this burger are very usual and common. Mayonnaise and ketchup is used as a spread while lettuce, tomato and onion is used as toppings. If you like you can add shredded carrots or beetroots as well.
